@@ -24,7 +24,10 @@ Se você também trabalha com dados ou tem interesse em projetos semelhantes, ad
 ![df original](https://github.com/user-attachments/assets/44c9f5e3-253d-484d-a6e3-9d00e639bc52)
 
 ![RFV](https://github.com/user-attachments/assets/8fdff4a2-4b13-4456-b6ea-d4f6b03d5882)
+
 ![analises](https://github.com/user-attachments/assets/439a5266-441a-4841-897b-6ad422490a94)
+
 ![cotovelok++](https://github.com/user-attachments/assets/d7ec7d60-dbab-4fa5-9925-4f791f1876cf)
+
 
 ![k++](https://github.com/user-attachments/assets/5cdedc9f-6b90-4fb2-a0d5-dec9017668f4)
